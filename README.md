@@ -1,3 +1,1 @@
-# CipherOS-DetailsNOTHEFT
-DO NOT STEAL MY IDEAS!!!!!!!
-idk how to delete or make stuff private.
+ignore this, i can't make it private so just ignore. 
